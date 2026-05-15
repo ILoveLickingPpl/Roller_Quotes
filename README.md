@@ -1,5 +1,5 @@
 # Roller_Quotes
-All the stupid song lyrics or quotes that I think our relationship uhm
+All the dum-dum song lyrics or quotes that I think our relationship is uhm
 
 @solarrhexed !!
 
