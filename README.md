@@ -15,3 +15,9 @@ She's smart and sweet and clever, she every day sits with me
 She sends me songs at work, she'd ask me be less rude and I'd disagree
 I tell her I'm just a bully and she totally agrees.
 But she won't walk away.“
+
+„Lately, I've been, I've been losin' sleep
+Dreamin' about the things that we could be“
+
+„I-I-IDONTSPEAKGERMAN!!!
+..but I can if you like“
