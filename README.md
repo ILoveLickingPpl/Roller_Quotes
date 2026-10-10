@@ -1,7 +1,7 @@
 ## Roller_Quotes
 All the dum-dum song lyrics or quotes that I think our relationship is uhm
 
-@WingedSwordsman !!
+@AngelicFailures !!
 
 „Я Гача Лайфу спою:
 'Гача Лайф, я тебя люблю.
